@@ -1,1 +1,0 @@
-# mangekyousharingans.github.io.com
